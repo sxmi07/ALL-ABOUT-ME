@@ -10,6 +10,4 @@ Cybersecurity Student | Ethical Hacker in Training |
 
 📚 Continuously learning and exploring new technologies to stay ahead in the ever-evolving cybersecurity landscape.
 
-🚀 Dedicated to leveraging knowledge and skills to contribute positively to the cybersecurity community and make cyberspace safer for everyone.
-
-Connect with me on INSTAGRAM [SXMI._.WHO_
+🚀 Dedicated to leveraging knowledge and skills to contribute positively to the cybersecurity community and make cyberspace safer for everyone's 
